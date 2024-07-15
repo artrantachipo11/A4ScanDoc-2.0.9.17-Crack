@@ -1,0 +1,1 @@
+# A4ScanDoc-2.0.9.17-Crack
